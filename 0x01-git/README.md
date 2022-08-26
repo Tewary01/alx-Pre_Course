@@ -1,1 +1,1 @@
-starting to code today, so cool
+starting to code today, so cool and very intresting
